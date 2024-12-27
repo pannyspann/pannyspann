@@ -1,4 +1,4 @@
-![50 sin título_20241227191033](https://github.com/user-attachments/assets/ff6593fe-8269-4547-b7db-40368f32a0ac)
+![50 sin título_20241227191653](https://github.com/user-attachments/assets/8d8adba7-6531-4dfd-8a83-f9691e9060d6)
 
 
 
