@@ -1,7 +1,8 @@
-toxic sinsanity
+spikey got lolpop
 ---
-*get me out of here*
-![50 sin título_20241227191653](https://github.com/user-attachments/assets/8d8adba7-6531-4dfd-8a83-f9691e9060d6)
+*HE BITED ME!!!*
+
+![tumblr_187905e829f4365e22262a954441acf6_ce85ebfd_1280](https://github.com/user-attachments/assets/f06d4289-4dd4-4820-b5d7-322a7910ae2f)
 
 
 
